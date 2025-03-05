@@ -50,7 +50,7 @@ You can enjoy all the benefits of the platform for 15 days, and if you are unsat
 
 ## Mindvalley Black Friday Offer Sale
 
-On Black Friday sale 2024, enjoy a [60% discount on Mindvalley](https://bit.ly/3W5sL0n) sitewide. This is a limited-time offer, so act fast. You don't need a coupon code.
+On Black Friday sale 2024, enjoy a [60% discount on Mindvalley](https://mindvalley-coupon.mystrikingly.com/) sitewide. This is a limited-time offer, so act fast. You don't need a coupon code.
 
 [
 ![](https://media.licdn.com/dms/image/v2/D5612AQG25OG9cxppUw/article-inline_image-shrink_1500_2232/article-inline_image-shrink_1500_2232/0/1732883819973?e=1738195200&v=beta&t=Y3sZm3yIIxOyIunPNKAi1xYDOHb0qZi_MOY20LJ2c9s)
